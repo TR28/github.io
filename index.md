@@ -7,3 +7,5 @@ Dr. Henry Walton Jones Jr odr auch Indiana "Indy" Jones ist die fiktive Hauptfig
 * veruscht Kulturgüter der Allgemeinheit zu erhalten
 * sucht nach legendären Reliquen
 * beschäftigt sich mit religiösen Phänomenen
+
+> "Aaah - Venedig!"
